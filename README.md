@@ -1,7 +1,7 @@
 borroworrob
 ===========
 
-Idein proposal at Borroworrob
+Idein proposal selected for BorroworroB, Currency as Space exhibition, 2014 - www.borroworrob.org
 
  --------------------------
 
